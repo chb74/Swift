@@ -8,32 +8,5 @@
 * [Chatper #6](#Chapter-6)
 
 
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-<li>
-
-
 ## <a name="Chapter-1">**Chapter #1**</a>
 
